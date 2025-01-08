@@ -1,2 +1,2 @@
-## Hi I'm George Kountouris👋
+## Hi I'm Giorgos Kountouris👋
 
